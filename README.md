@@ -1,2 +1,0 @@
-# SeverV2
-SeverCheat
